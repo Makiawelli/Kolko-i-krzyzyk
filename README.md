@@ -1,1 +1,0 @@
-# Kolko-i-krzyzyk
